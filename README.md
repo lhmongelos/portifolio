@@ -1,2 +1,33 @@
 # portifolio
 Portifólio
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+# T
+-----
